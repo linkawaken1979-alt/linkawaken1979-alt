@@ -11,4 +11,6 @@ I also port unity games (barely) and godot games.
 
 I have a website thats called https://harryamagames.pages.dev, im trying to work on it and add more games.
 
-So yeah nothing here, pretty boring
+If anyone wants to email me/DMCA, email is: ricefarmes9@gmail.com
+
+
