@@ -1,2 +1,1 @@
-# GitHubProfileREADME
-dont mind about this, just fucking get out of here
+# Viet guy but yeah/ricefarmer 
